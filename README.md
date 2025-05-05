@@ -2,7 +2,7 @@
 - 👀 I’m interested in Full Stack Development.
 - 🌱 I’m currently learning new languages that can help me for my growth.
 - 💞️ I’m looking to collaborate anyone.
-- 📫 How to reach me - Just E-Mail me on anish050104@gmail.com
+- 📫 How to reach me - Just E-Mail me on anish050104@gmail.com 
 - 😄 Pronouns: He/his
 - ⚡ Fun fact: Self Think
 
